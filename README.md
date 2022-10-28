@@ -18,8 +18,8 @@
 Una elección que tuvo un 75% de participación del padrón.
 Todos los Founders fueron candidatos.
 Los electos fueron: Monik  Wanda Berty SoBOL.
-18. Mati y RCJulin son holder del token $fork habilita para votar FIPs entre otras millones de cosas.
-19. Participamos del Space Twitter de la elección de Mission Board de Proof of Humanity, en la cual resultó ganador Valen y en segundo lugar el muy gallardo Green, ambos funders de nuestra Dao.
+18. Mati y RCJulin son holder del token $fork que habilita para votar FIPs entre otras millones de cosas.
+19. Participamos del Space Twitter de la elección de Mission Board de Proof of Humanity, en la cual resultó ganador Valen y en segundo lugar el muy galardonado Green, ambos funders de nuestra Dao.
 20. Nuestro Funder Tute creo el Espacio de forkero en el metaverso de decentraland (terraza vip ForkDao).
 21. Probamos nuestro espacio en el metaverso  VR & Mobile spatial.io.
 22 En una colaboración entre ForkDao y PoH logramos hacer un Twitter Space libre, seguro y descentralizado. Gracias a nuestro derecho como personas humanas registradas en POH.
@@ -35,10 +35,10 @@ https://open.spotify.com/show/2f7JpdcrBqKXxCTsQAMn1q?si=32670739b0914db9
 28. ForkDao hizo posible inmortalizar un momento histórico usando la herramienta de la empresa Poap (Proof Of Attendance Protocol-Protocolo de prueba de asistencia) de la Reunión épica en Madrid de Santi, Juanu y Alan desarrollando UBI v2 bautizada como  UBITON.
 29. Colaboramos con el sold out en un minutos de solo 5 nfts del artista jean "viva el fork aguante Julian".
 30. Comenzó la Radio Fork al palo con la conducción estelar de Castor y RCJulin.
-31. Coproducción y casteo de la mano de nicod_eth integrante ForkDao de la primer call UBI DAO en  telegram con clase magistral Franl11 https://t.me/archivoUBI/2
-32. Se enseñó a miembros de la comunidad ForkDao a mintear NFTs gratis en página web https://showtime.xyz/
-33. ForkDao estuvo en primera fila en el auditorio de La Usina Del Arte, para estar presentes en el primer episodio del "Por qué no te habré hecho caso?" de Santi Siri y Hernán Zin.
-34. ForkDao ayudo a costear parte del viaje de Max desde tras la sierra Córdoba  a Bs.As. Para el #ForkDaoGreenDay colaborando con $Ubis de sus miembros.
+31. Coproducción y casteo de la mano de nicod_eth integrante de ForkDao en la primer call UBI DAO en telegram con una clase magistral  de Franl11 https://t.me/archivoUBI/2
+32. Se enseñó a miembros de la comunidad ForkDao a mintear NFTs gratis en https://showtime.xyz/
+33. ForkDao estuvo en primera fila en el auditorio de La Usina Del Arte, para estar presentes en el primer episodio del worldtour "Por qué no te habré hecho caso?" de Santi Siri y Hernán Zin.
+34. ForkDao ayudo a costear parte del viaje de Max desde tras la sierra Córdoba a Bs.As. Financiado con $ubis por parte de sus miembros para el #ForkDaoGreenDay 
 35. El día 23/10/22 realizamos la juntada por el #ForkDaoGreenDay con gran concurrencia de los integrantes de esta maravillosa comunidad compartimos un almuerzo vegano y no vegano con mucha charla, música, abrazos y risas; con sorteos de merch.
 36. Explicamos cómo participar en el FORK PRODE PACK #1 creado por el Arbolito Green:
 https://prode.market/#/markets/0x2e95dfba59f0f75c30bb3ad8d1918a0de2e3de8b
